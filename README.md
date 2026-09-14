@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-DERC800214HHGLMS17
+DERC800214HHGLMS17
